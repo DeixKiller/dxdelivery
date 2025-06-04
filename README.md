@@ -21,8 +21,8 @@ Type it out and ill check and fix it asap.
 Did you like my work?
 Feel free to suport my work by donating:
 
-[url=patreon.com/user?u=19847890][img]https://files.catbox.moe/crnnu6.png[/img][/url]
-[url=https://ko-fi.com/deixy][img]https://storage.ko-fi.com/cdn/brandasset/v2/support_me_on_kofi_dark.png[/img][/url]
+patreon.com/user?u=19847890
+https://ko-fi.com/deixy
 
 
 Made with love from STEAM_0:0:440963439 to the gmod community <3
